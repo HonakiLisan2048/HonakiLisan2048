@@ -6,6 +6,7 @@
 - 💞️ I’m looking to collaborate on some game studios,It'll be perfect if it's become true.
 - 📫 Contact me at windamiya1555@gmail.com or 1591649017@qq.com. I'm wating for you at Chengdu StarGazers!(It's also the name of my studio)
 - For introduction,Lu Tongfei(Hikari Kirisame)is my captain. And we have 4 workmates besides me.
+- (So what's my name? Kirisame Tairitsu? You're right lol.)
 
 
 
