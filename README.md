@@ -5,7 +5,7 @@
 - For me at least,It's true(I'm sorry to my weak learning skills).
 - 💞️ I’m looking to collaborate on some game studios,It'll be perfect if it's becoming true.
 - 📫 Contact me at windamiya1555@gmail.com or 1591649017@qq.com. I'm wating for you at Chengdu StarGazers!(It's also the name of my studio)
-- For introduction,Lu Tongfei(also "Hikari Kirisame")is my captain. And 4 workmates besides us.
+- For introduction,"Akari Patrick"is my captain. And 5 workmates besides us.
 
 
 
